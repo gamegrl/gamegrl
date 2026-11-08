@@ -7,4 +7,4 @@
   <img align=center width="100" src="https://komarev.com/ghpvc/?username=gamegrl&color=008282&label=ㅤㅤㅤ𓎟𓎟+🐾+⸝⸝ㅤㅤㅤ">
 </div>
 
-  
+$${\textsf{\color{#F6CDA3}”this ts shit this shit pisses pmo me off pisses me off“}}$$
