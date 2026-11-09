@@ -1,6 +1,6 @@
 <div align=center> 
   
-  ### $${\textsf{\color{#008282}When you're gaming with the GameGrl you're gaming with the best!}}$$
+  ### $${\textsf{\color{#008282}wh3n you'r3 g4m1ng w1th th3 g4m3grl you'r3 g4m1ng w1th th3 b3st!!!!}}$$
   
 ⠀
 
